@@ -1,0 +1,2 @@
+# Joanna-
+trading all
